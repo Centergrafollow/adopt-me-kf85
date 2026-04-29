@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with top Scripts for adopt me, the #1 Script. Includes esp and custom skins for unbeatable performance.
 
 
 
